@@ -1,1 +1,1 @@
-here are some projects that i made in the college
+here are some projects that i made in the faculty
